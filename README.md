@@ -10,8 +10,7 @@
 <br/>
 
 **Connect with me:** 
-- 📝 Email : preownerf@gmail.com
-- 💬 Telegram : [@johnbusiness7](https://t.me/johnbusiness7)
+- 💬 Telegram : [@BlockchainLeadDev](https://t.me/BlockchainLeadDev)
 
 **Languages and Tools:**   
 
