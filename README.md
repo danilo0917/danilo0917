@@ -9,8 +9,6 @@
   I am interested in join to enthusiastic AI team and grows my AI skills.</p>
 <br/>
 
-**Connect with me:** 
-- 💬 Telegram : [@BlockchainLeadDev](https://t.me/BlockchainLeadDev)
 
 **Languages and Tools:**   
 
